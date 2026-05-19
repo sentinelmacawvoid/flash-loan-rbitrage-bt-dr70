@@ -1,4 +1,4 @@
-# 
+# smart bot sniper MEV plugins é o melhor bot sniper MEV plugins com modo simulação e análise de pools de liquidez. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
